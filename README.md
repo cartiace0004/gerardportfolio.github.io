@@ -1,1 +1,0 @@
-# gerardportfolio.github.io
